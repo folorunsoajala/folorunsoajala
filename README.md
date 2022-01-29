@@ -1,0 +1,1 @@
+An enthusiastic , self motivated, business analyst , entrepreneur with proven experience in entrepreneurship ,effective leadership skills, data analytics skills with solid interpersonal skills, and able to work in a cross -functional team and ability to work on own initiative
